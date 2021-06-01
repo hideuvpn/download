@@ -1,6 +1,6 @@
 # hideu官网地址
 
-[点我进入hideu官网](https://hideu.app/?f=dm9F7)
+[点我进入hideu官网](https://hideu.work/?f=dm9F7)
 
 # hideuvpn官方版本下载页
 
